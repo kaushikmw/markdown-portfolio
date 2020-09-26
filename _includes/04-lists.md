@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+# My favorite thigs
+- Coding
+- Mantra meditation
+- Teasing my wife
+- YOGA
